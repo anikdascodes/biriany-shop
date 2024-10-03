@@ -1,0 +1,2 @@
+# cursor-biriany-shop
+ 
